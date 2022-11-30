@@ -1,1 +1,1 @@
-Currently studying computer engineering at UDC.
+Currently studying computer science at UDC.
